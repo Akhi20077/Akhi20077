@@ -1,5 +1,5 @@
 # 💫 About Me:
-What's up 👋, Im a motivated student with a passion for ML, computer science , venture capital, and startups. 
+What's up 👋, Im a motivated student with a passion for ML, computer science , venture capital, and startups.
 
 
 ## 🌐 Socials:
